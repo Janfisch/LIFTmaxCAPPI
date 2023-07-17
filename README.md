@@ -1,0 +1,1 @@
+- current maxCAPPI from xband radar during Swabian Moses
